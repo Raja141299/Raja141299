@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kraj18593@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1bAPYDbEBBRTqRKqJfp7buCMpBNDissfX/view?usp=sharing](https://drive.google.com/file/d/1bAPYDbEBBRTqRKqJfp7buCMpBNDissfX/view?usp=sharing)
+- 📄 Know about my experiences from my resume [https://drive.google.com/file/d/1VGkQXNwVUvGEMlo_hHkIFtbrv_tl-OS-/view?usp=sharing](https://drive.google.com/file/d/1VGkQXNwVUvGEMlo_hHkIFtbrv_tl-OS-/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
